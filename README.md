@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @crevinx0
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Nothing
+- ⚠️ Stay Away : Retards/Niggers
